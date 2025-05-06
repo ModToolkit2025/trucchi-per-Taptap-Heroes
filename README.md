@@ -10,7 +10,7 @@ Negli ultimi anni, sono comparsi online numerosi strumenti e generatori per gioc
 
 Con questi trucchi puoi accedere a un **generatore di risorse** che ti permette di ottenere:
 
-- **Gemmi illimitate**
+- **Gemme illimitate**
 - **Oro infinito**
 - **Mana gratis**
 - **Punti evocazione senza limiti**
